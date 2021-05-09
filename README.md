@@ -1,1 +1,1 @@
-<a href="https://metrolagu.co.uk">download lagu</a> terbaru 2020
+<a href="https://metrolagu.wapqaw.com">metrolagu</a> terbaru 2021
